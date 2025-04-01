@@ -6,5 +6,5 @@
 
 <b>[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
 
-hii umm im , i really really love trigun - buuut you shoudl check my strawpage for all my interests
-im full of whimsy and joy u have no idea ,, pleas talk to me 
+hii umm im eriks ,, or jitter ummmmmmmmm , i really really love trigun, and i also play league - buuut you shoudl check my strawpage for all my interests . . . 
+im full of whimsy and joy u have no idea ,, pleas talk to me !!!!!!!!!!!!!!!!!!!!!!!!!!
