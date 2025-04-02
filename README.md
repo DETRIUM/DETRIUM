@@ -6,5 +6,4 @@
 
 <b>[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
 
-hii umm im Eriks ,, or Jitter ummmmmmmmm , i really really love trigun, and i also play league - buuut you shoudl check my strawpage for all my interests . . . 
-im full of whimsy and joy u have no idea ,, pleas talk to me !!!!!!!!!!!!!!!!!!!!!!!!!!
+![](https://komarev.com/ghpvc/?username=DETRIUMS&label=visitors&color=red&style=flat)
