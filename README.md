@@ -10,4 +10,4 @@
 
 ![IMG_5706](https://github.com/user-attachments/assets/751e9e5c-722e-4c35-a0d1-1cb4ea9115e3)
 
-<b>[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
+<b>[RENTRY](https://rentry.co/spiritsrefuge) ㅤ[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
