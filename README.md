@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=DETRIUMS&label=BOUNTY_HUNTERS&color=orange&style=flat)
+![](https://komarev.com/ghpvc/?username=DETRIUMS&label=Aspects_of_war&color=orange&style=flat)
 
 
 <div align="center">
