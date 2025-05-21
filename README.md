@@ -9,4 +9,4 @@
 ![IMG_6057](https://static.wikia.nocookie.net/leagueoflegends/images/f/fc/Aurelion_Sol_He_Has_Returned.png/revision/latest/scale-to-width-down/1000?cb=20170325053123)
 
 
-<b>[<3 E.V.E](https://rentry.co/yasukayn) ㅤ[RENTRY](https://rentry.co/spiritsrefuge) ㅤ[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
+<b>[<3 E.V.E](https://rentry.co/yasukayn) ㅤ[main rentry being remade]() ㅤ[ATA](https://vashthestampede.atabook.org) ㅤ[straw being remade]()</b>
