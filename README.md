@@ -1,7 +1,6 @@
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=DETRIUMS&label=Aspects&color=orange&style=flat)
-https://rentry.co/yasukayn
 
 <div align="center">
 
