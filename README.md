@@ -1,7 +1,7 @@
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=DETRIUMS&label=Aspects&color=orange&style=flat)
-
+https://rentry.co/yasukayn
 
 <div align="center">
 
@@ -10,4 +10,4 @@
 ![IMG_6057](https://static.wikia.nocookie.net/leagueoflegends/images/f/fc/Aurelion_Sol_He_Has_Returned.png/revision/latest/scale-to-width-down/1000?cb=20170325053123)
 
 
-<b>[RENTRY](https://rentry.co/spiritsrefuge) ㅤ[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
+<b>[<3 E.V.E](https://rentry.co/spiritsrefuge) ㅤ[RENTRY](https://rentry.co/spiritsrefuge) ㅤ[ATA](https://vashthestampede.atabook.org) ㅤ[STRAW](https://detrium.straw.page/)</b>
